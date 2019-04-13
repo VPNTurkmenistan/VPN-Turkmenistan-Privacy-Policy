@@ -56,6 +56,10 @@ Changes to This Privacy Policy
 
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
+The privacy policy of the entire advertising application is located here:
+https://www.appodeal.com/home/privacy-policy/
+
 Contact Us
 
 If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me.
+turkmenistan.vpn@gmail.com
